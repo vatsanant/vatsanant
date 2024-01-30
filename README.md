@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vatsanant
-- 👀 I’m interested in C++, AI and Cyber Security
-- 🌱 I’m currently learning C++ and EH
-- 📫 How to reach me ... NO YOU CAN'T
-- 
+- 👀 Computers are interested in me. 
+- 🌱 THe only language i know is c++.
+- 📫 How to reach me ... NO YOU CAN'T 
+- "E685412C6A4F148E634B99BA1BA60271AA26BABACDA1761213C9B98C90CE0BFE" 
