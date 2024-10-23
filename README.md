@@ -1,3 +1,1 @@
 # Hey...
-# 👀 Computers are interested in me. 
-
